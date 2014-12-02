@@ -1,5 +1,5 @@
-Katiebear-stash
 Beer Culture of the Northwest
+
 
 Living in Tempe near Arizona State University we can assure the alcohol was not lacking, but there was a lack of fresh local brews leaving us with a thirst for good beer! 
 Our first stop after getting settled into our tiny studio apartment and cheering the Sea Hawks into Super Bowl victory we stumbled upon Redhook Brewery. 
@@ -19,7 +19,7 @@ Hoorah for the day drinker!
 
 Here is our unfinished and ongoing local brewery BEER COMPENDIUM: 
 We are starting with the breweries close to home, but will be adding in Seattle brews soon enough! 
-Follow us on Untappd for weekly updates and photos __Link__
+Follow us on Untappd for weekly updates and photos at BowserThePom.
 
 Redhook: Woodinville, WA
 
